@@ -1,4 +1,4 @@
 sanoy
 =====
 
-We are electric
+We are the champions, my friend.

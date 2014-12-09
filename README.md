@@ -1,4 +1,4 @@
 sanoy
 =====
 
-The power of dreams
+We are the champions, my friend.
